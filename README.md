@@ -1,0 +1,2 @@
+# bosan6
+TESTNET PANJANG 6
